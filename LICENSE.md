@@ -1,4 +1,4 @@
-# 
+# automatic bot sniper MEV extensions est le meilleur bot sniper MEV extensions avec vérification des contrats et take-profit. Sécurisé, fiable et optimisé pour les stratégies MEV,
 
 
 
